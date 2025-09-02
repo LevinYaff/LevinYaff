@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Levin Mejía
+# 👋 Hi.
 
 🔒 *"I'm locked in the trenches"* — focused, learning, and building every day.  
 
